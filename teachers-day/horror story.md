@@ -18,5 +18,5 @@ As I walked towards the Y1 and Y2 block, I heard shouting coming from the third 
 I hid behind the big red back door. I took a peek and saw people in black robes who looked like they were fighting. When the leader, who could be differentiated by a big black hat, turned around, our eyes met and my jaw dropped...
 
 #### _The Horrors_
-The leader lifted her head to reveal her face, her all-too-familiar eyes met mine. Her round nose, thin lips and square glasses. __It was Ms Lim__ I rubbed my eyes and pinched myself, not believing how her kind self earlier in the day was just a disguise. 
-She screamed in her high-pitched voice, "CATCH HER!" Her followers closed the door to find me behind it and they surrounded me. I was trapped, unable to escape.
+The leader lifted her head to reveal her face, her all-too-familiar eyes met mine. With her round nose, thin lips and square glasses, I easily recognised the woman. __It was Ms Lim__ I rubbed my eyes and pinched myself, unable to believe that her kind self earlier in the day was merely a disguise. 
+In her high-pitched voice, she screamed, "CATCH HER!" Her followers closed the door only to find me behind it and they surrounded me. I was trapped, unable to escape.
